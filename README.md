@@ -6,7 +6,7 @@
 - 💼 Career goal: Manual Test Engineer → Full-stack Test Engineer  
 - 🌍 Based in: Vietnam  
 - 💬 Languages: Vietnamese, English  
-- 📫 Email: [caonguyenhao69@gmail.com](mailto:caonguyenhao69@gmail.com)  
+- 📫 Email: [hao.cao1153@gmail.com](mailto:hao.cao1153@gmail.com)  
 
 ---
 
